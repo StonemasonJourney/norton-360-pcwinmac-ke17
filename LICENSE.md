@@ -1,4 +1,4 @@
-# 
+# Novo Norton 360 predefinições para Mac OS | Seguro Norton 360 predefinições para PC Windows. Com varredura de vírus e conversão de formatos — otimizado para máximo desempenho em cada plataforma.
 
 
 
